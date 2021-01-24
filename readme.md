@@ -16,6 +16,8 @@ Shabby chic microdosing meh church-key chillwave mustache etsy chicharrones. Sna
 
 ## How to contribute
 
+bla bla bla bla
+
 ## Copyright
 
 copyright 1885
